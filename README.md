@@ -1,6 +1,6 @@
 Teori Densitas Kritis Adaptif (ACDT)
 Adaptive Critical Density Theory
-Melengkapi Kekurangan Prinsip Pareto dalam Dunia Kerja 2025 dan Masa Depan
+Melengkapi Kekurangan Prinsip Pareto dalam Dunia Kerja 2025 dan Masa Depan.
 
 © 2025 – Melki W. Saputro
 Indonesian Security Society Studies
